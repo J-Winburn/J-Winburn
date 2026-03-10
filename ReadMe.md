@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Science student at the University of Kentucky<br><br>Expected Graduation: December 2026<br><br> Actively seeking a Software Engineering or Systems Engineering Internship (Summer 2026
+Computer Science student at the University of Kentucky<br><br>Expected Graduation: December 2026<br><br> Actively seeking a Software Engineering or Systems Engineering Internship (Summer 2026)
 
 
 ## 🌐 Socials
